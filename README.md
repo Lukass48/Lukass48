@@ -1,4 +1,4 @@
-# 👋 Hola, soy [Lukas]
+# 👋 Hola, soy Lukas
 
 ## 🌟 Sobre mí
 
